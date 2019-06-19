@@ -111,7 +111,8 @@ REGIÃO CENTRO-OESTE
     * GOIÂNIA		 
 		 
 	     * [Tulio Rosa (Perícia Digital) ](http://tuliorosa.com.br)
-
+	     
+	     *[Leandro Catini (Perícia Digital) ] (https://www.linkedin.com/in/leandro-catini-726a5799/)
 		 
 * MATO GROSSO
 
